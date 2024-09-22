@@ -21,7 +21,7 @@ Atualmente trabalho como Analista de dados na empresa Omerium Tech, onde sou o p
 
 ### Vamos nos conectar! 
 
-- LinkedIn: https:www.linkedin.com/in/wagner-jorge-0017221a5/
-- LinkedIn Omerium Tech:https://www.linkedin.com/company/omerium-tech/?viewAsMember=true
+- LinkedIn:   https:www.linkedin.com/in/wagner-jorge-0017221a5/
+- LinkedIn Omerium Tech:  https://www.linkedin.com/company/omerium-tech/?viewAsMember=true
 - Email: 23wagnerjorge@gmail.com
 
